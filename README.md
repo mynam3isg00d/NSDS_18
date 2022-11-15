@@ -4,4 +4,4 @@ Davide Palmiotti
 
 Matteo "Il Micha" Miceli
 
-Elena Schinelli
+Elena Rosalba Schinelli
